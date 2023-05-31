@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello Habibi! 👋
 
 <p>Murraad Creatives & Co is a design and marketing agency that is focused on helping small businesses, startups, and entrepreneurs achieve their branding and marketing goals.</p>
 
